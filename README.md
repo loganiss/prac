@@ -1,1 +1,1 @@
-# prac
+# DIMA NE NADO LOMAT WEBMINKU
